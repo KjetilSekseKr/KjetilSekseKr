@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KjetilSekseKr
+- 👀 I’m interested in grevens fruktcider <3
+- 🌱 I’m currently learning how to play bordtennis (its very hard)
+- 😄 Pronouns: Xe/Xer
